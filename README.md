@@ -1,1 +1,0 @@
-# qualitystudioaka.github.io
